@@ -1,0 +1,1 @@
+Honza posunuje krabice ve skladišti.
